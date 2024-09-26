@@ -1,4 +1,4 @@
-## Hi there I am Ashish Khanal. I am an undergraduate student pursuing my degree in Theoritical Physics. 👋
+## Hi there I am Ashish Khanal. I am an undergraduate student pursuing my degree in Theoreitical Physics. 👋
 
 
 
