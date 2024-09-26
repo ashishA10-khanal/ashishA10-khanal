@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there I am Ashish Khanal. I am an undergraduate student pursuing my degree in Theoritical Physics. 👋
 
 <!--
 **ashishA10-khanal/ashishA10-khanal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
